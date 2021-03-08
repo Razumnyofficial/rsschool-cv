@@ -1,1 +1,1 @@
-https://Razumnyofficial.github.io/rsschool-cv/
+https://razumnyofficial.github.io/rsschool-cv/
